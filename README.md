@@ -1,0 +1,2 @@
+# polosatiy
+stariy nik
